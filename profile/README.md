@@ -6,6 +6,8 @@ But how do you find hashtags that match your videos? Which ones are trending, an
 
 You don't need to guess or spend hours searching manually. A [YouTube Hashtags Extractor](https://www.yttags.com/youtube-hashtags-extractor/) can help you discover relevant hashtag ideas and make your research easier.
 
+![90-YouTube-Hashtags-for-More-Views](8e552add-7844-4d5a-8aa8-b0dba6bcd62f-69kb.jpeg)
+
 ---
 
 ## 📢 Promote Your AI Tool
